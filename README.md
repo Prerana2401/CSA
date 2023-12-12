@@ -1,0 +1,1 @@
+Child sexual abuse (CSA) is a serious problem that affects millions of children around the world. It is defined as any sexual activity involving a child under the age of 18, where the child is being used for the sexual gratification of an adult or older child. CSA can take many forms, including physical sexual contact, sexual exploitation, and sex trafficking.
